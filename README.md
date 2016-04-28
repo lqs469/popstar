@@ -6,5 +6,5 @@ Life is a little bitch, don't be cheated and belive her, never.
 
 Ok,
 This is a little game and it has guide everywhere.
-When I learned programming with `C` I write this shit, evey poor surely, I konw.
+When I learned programming with `C` I write this shit, so poor surely, I konw.
 Just for fun and reminder me dont forget what life real face is.
