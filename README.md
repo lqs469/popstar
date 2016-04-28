@@ -1,5 +1,5 @@
 # popstar
----
+
 When I was a little boy.
 Mama told me don't be upset when life bit you, you should fucking beat back until your fist break down.
 Life is a little bitch, don't be cheated and belive her, never.
